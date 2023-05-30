@@ -14,7 +14,7 @@ By the end of the book, you will have a solid foundation in the art of creativit
 
 So let's get started on this journey towards better conflict management through creativity and innovation!
 
-MingHai Zheng is a writer based in Wuhan, China, who focuses on writing articles about workplace and management topics. He has written hundreds of articles on these topics and is dedicated to sharing his insights and experiences with others who are interested in improving their careers and their businesses.
+MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
 
 
 
