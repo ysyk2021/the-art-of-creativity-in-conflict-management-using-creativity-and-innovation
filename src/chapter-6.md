@@ -1,5 +1,3 @@
-Chapter 5: Overcoming Barriers to Creativity in Conflict Management
-===================================================================
 
 In this chapter, we will explore some of the common barriers to creativity in conflict management and provide strategies for overcoming them. Additionally, we will discuss tips for fostering a creative environment that encourages innovation and new ideas.
 

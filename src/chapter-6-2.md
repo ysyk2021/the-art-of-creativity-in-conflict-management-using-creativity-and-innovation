@@ -1,5 +1,3 @@
-Strategies for Overcoming Barriers to Creativity
-=====================================================================================================================
 
 In the previous chapter, we discussed common barriers to creativity in conflict management. In this chapter, we will explore specific strategies for overcoming these barriers and fostering a more creative work environment.
 

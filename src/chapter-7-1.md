@@ -1,5 +1,3 @@
-Definition of Innovation
-======================================================================
 
 Innovation is an essential aspect of conflict management, enabling individuals and organizations to develop creative solutions to complex problems. Innovation involves the creation of new ideas, products, processes, or services that improve existing systems or enable the development of new ones. In this chapter, we will explore the definition of innovation in conflict management and how it can be used to resolve workplace conflicts.
 

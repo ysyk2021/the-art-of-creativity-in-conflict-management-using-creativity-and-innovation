@@ -1,5 +1,3 @@
-Tips for Fostering a Creative Environment
-==============================================================================================================
 
 Even with the best intentions, it can be challenging to foster creativity in the workplace and specifically during conflict management. There are several barriers to creativity that can inhibit a conflict resolution process. These include:
 

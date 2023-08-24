@@ -1,5 +1,3 @@
-Chapter 3: Techniques for Generating Creative Solutions
-=======================================================
 
 In this chapter, we will explore several techniques that can be used to generate creative solutions to workplace conflicts. These techniques are designed to encourage individuals and teams to think outside the box and develop innovative approaches to problem-solving.
 

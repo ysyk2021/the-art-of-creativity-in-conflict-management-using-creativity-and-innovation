@@ -1,5 +1,3 @@
-Role-playing
-=====================================================================
 
 In conflict management, generating creative solutions is essential. One technique that can be used to generate creative solutions is role-playing. In this chapter, we will explore the benefits of role-playing and how to use it effectively.
 

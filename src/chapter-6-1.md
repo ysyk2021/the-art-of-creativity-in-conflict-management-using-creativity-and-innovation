@@ -1,5 +1,3 @@
-Identifying Barriers to Creativity
-=======================================================================================================
 
 Creativity is essential to effective conflict management, but there are often barriers that prevent individuals from generating innovative solutions. By identifying these barriers, individuals can take steps to overcome them and foster a more creative work environment. In this chapter, we will explore common barriers to creativity in conflict management and how to overcome them.
 

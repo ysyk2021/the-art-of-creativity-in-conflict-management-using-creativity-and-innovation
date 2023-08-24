@@ -1,5 +1,3 @@
-Visualization
-======================================================================
 
 Visualization is a powerful technique for generating creative solutions to workplace conflicts. This technique involves using imagery and imagination to explore ideas and possibilities.
 

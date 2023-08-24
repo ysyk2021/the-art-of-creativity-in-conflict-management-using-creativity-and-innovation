@@ -1,5 +1,3 @@
-Chapter 6: Innovation in Conflict Management
-============================================
 
 In this chapter, we will explore the role of innovation in conflict management. We will define innovation and discuss its relationship to creativity. Additionally, we will examine innovative approaches to conflict management and the importance of risk-taking in this process.
 

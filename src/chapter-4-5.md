@@ -1,5 +1,3 @@
-Synectics
-==================================================================
 
 In conflict management, generating creative solutions is essential. One technique that can be used to generate creative solutions is synectics. In this chapter, we will explore the benefits of synectics and how to use it effectively.
 

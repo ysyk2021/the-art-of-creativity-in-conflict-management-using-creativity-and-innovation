@@ -1,5 +1,3 @@
-Steps to Apply Creativity in Conflict Management
-=======================================================================================================
 
 In the previous chapters, we have explored the importance of creativity in conflict management and techniques for generating creative solutions. In this chapter, we will discuss how to apply creativity in conflict management through a series of steps.
 

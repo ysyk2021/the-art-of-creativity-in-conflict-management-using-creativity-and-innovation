@@ -1,5 +1,3 @@
-Six Thinking Hats
-==========================================================================
 
 Six Thinking Hats is a problem-solving technique that encourages individuals to consider issues from multiple perspectives, leading to the development of creative and effective solutions. In this chapter, we will explore the benefits of Six Thinking Hats and how it can be used to generate creative solutions in conflict management.
 

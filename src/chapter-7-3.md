@@ -1,5 +1,3 @@
-Innovative Approaches to Conflict Management
-==========================================================================================
 
 Innovation is critical to effective conflict management. By developing unique and creative approaches, individuals and organizations can create solutions that address underlying issues and concerns. In this chapter, we will explore innovative approaches to conflict management and how they can be used to resolve workplace conflicts.
 

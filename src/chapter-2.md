@@ -1,5 +1,3 @@
-Chapter 1: Understanding Conflict
-=================================
 
 In this chapter, we will explore the concept of conflict, its different types, causes, and both negative and positive effects in the workplace.
 

@@ -1,5 +1,3 @@
-The Negative Effects of Conflict
-===================================================================
 
 Conflict is a natural part of any workplace, but it can have negative effects if not managed and resolved effectively. In this chapter, we will discuss the negative effects of conflict.
 

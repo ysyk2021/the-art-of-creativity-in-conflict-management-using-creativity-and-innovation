@@ -1,5 +1,3 @@
-Chapter 2: The Role of Creativity in Conflict Management
-========================================================
 
 In this chapter, we will explore the role of creativity in conflict management. We will define creativity and examine why it is important in conflict management. Additionally, we will discuss the benefits of using creativity in conflict resolution and how it works in practice.
 

@@ -1,5 +1,3 @@
-Brainstorming
-======================================================================
 
 Brainstorming is one of the most popular techniques for generating creative solutions in conflict management. It involves bringing a group of individuals together to share ideas and generate solutions to a problem. In this chapter, we will explore the benefits of brainstorming and how it can be used to generate creative solutions in conflict management.
 

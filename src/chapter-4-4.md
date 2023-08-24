@@ -1,5 +1,3 @@
-SCAMPER Technique
-==========================================================================
 
 To use creativity effectively in conflict management, individuals need to be able to generate creative solutions to problems. In this chapter, we will explore the SCAMPER technique, a powerful tool for generating creative ideas and solutions.
 

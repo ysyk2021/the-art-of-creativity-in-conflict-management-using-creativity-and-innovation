@@ -1,5 +1,3 @@
-Why Creativity is Important in Conflict Management
-================================================================
 
 Conflict is a natural part of workplace dynamics, and effective conflict management is essential for promoting collaboration, productivity, and organizational success. Traditional conflict resolution strategies such as compromise, negotiation, and mediation have been used to address conflict for many years. However, these approaches may not always be effective or appropriate in every situation.
 

@@ -1,5 +1,3 @@
-Types of Conflict
-====================================================
 
 Conflict is a natural part of workplace dynamics. In order to effectively manage conflict, it's important to understand the different types of conflict that can arise. In this chapter, we will explore the various types of conflict and how they can be identified and addressed.
 

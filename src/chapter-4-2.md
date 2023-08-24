@@ -1,5 +1,3 @@
-Mind Mapping
-=====================================================================
 
 Creative problem-solving is essential to effective conflict management. By generating new ideas and approaches to conflict resolution, individuals can develop solutions that address underlying issues and concerns. Mind mapping is a technique that can be used to encourage creative thinking and generate innovative solutions to workplace conflicts. In this chapter, we will explore mind mapping and how it can be used to foster creativity in conflict management.
 

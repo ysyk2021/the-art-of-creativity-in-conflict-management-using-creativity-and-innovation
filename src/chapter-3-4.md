@@ -1,5 +1,3 @@
-How Creativity Works in Conflict Management
-=====================================================================================================
 
 In conflict management, creativity plays a significant role in developing innovative solutions to complex problems. It allows individuals to approach conflicts from new perspectives, generate unique ideas and find common ground. In this chapter, we will explore how creativity works in conflict management and its importance in resolving conflicts.
 

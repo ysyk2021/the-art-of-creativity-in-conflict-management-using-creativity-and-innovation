@@ -1,5 +1,3 @@
-The Relationship Between Creativity and Innovation
-================================================================================================
 
 Creativity and innovation are essential to successful conflict management. While creativity is the ability to generate new ideas, innovation refers to turning those ideas into practical solutions that address underlying issues. In this chapter, we will explore the relationship between creativity and innovation and how it can be leveraged to resolve workplace conflicts.
 

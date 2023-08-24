@@ -1,5 +1,3 @@
-What is Creativity?
-=============================================================================
 
 Creativity is a key component of effective conflict management. In this chapter, we will explore what creativity is and how it can be used to resolve workplace conflicts.
 

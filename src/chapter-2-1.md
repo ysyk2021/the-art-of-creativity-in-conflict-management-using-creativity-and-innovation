@@ -1,5 +1,3 @@
-Definition of Conflict
-=========================================================
 
 Conflict is a common occurrence in the workplace. It can arise from differences in opinions, values, goals, personalities, or perceptions. In this chapter, we will explore the definition of conflict and how it can impact individuals and teams in the workplace.
 

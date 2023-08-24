@@ -1,5 +1,3 @@
-Preparation for Creative Conflict Management
-===================================================================================================
 
 Conflict is a natural part of any workplace, but it can be managed and resolved through the use of creativity and innovation. In this chapter, we will discuss tips for preparing to apply creativity in conflict management.
 

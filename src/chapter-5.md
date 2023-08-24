@@ -1,5 +1,3 @@
-Chapter 4: Applying Creativity in Conflict Management
-=====================================================
 
 As discussed in previous chapters, creativity can be a powerful tool for managing conflicts in the workplace. In this chapter, we will explore how to apply creativity in conflict management effectively.
 

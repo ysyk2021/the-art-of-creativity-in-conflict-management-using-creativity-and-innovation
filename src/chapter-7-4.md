@@ -1,5 +1,3 @@
-The Importance of Risk-Taking in Conflict Management
-==================================================================================================
 
 Innovation is an integral part of conflict management. When individuals and teams are willing to take risks and try new approaches, they can develop effective solutions to conflict that may not have been possible with traditional conflict resolution strategies. In this chapter, we will explore the importance of risk-taking in conflict management and how it can lead to more positive outcomes.
 

@@ -1,5 +1,3 @@
-Why Use Creativity in Conflict Management?
-====================================================================================================
 
 In conflict management, creativity can be a powerful tool for resolving conflicts. In this chapter, we will explore why creativity is an important aspect of conflict management and how it can be used to address workplace conflicts effectively.
 

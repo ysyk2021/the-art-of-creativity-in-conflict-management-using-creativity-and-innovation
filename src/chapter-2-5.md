@@ -1,5 +1,3 @@
-The Positive Aspects of Conflict
-===================================================================
 
 While conflict is often seen as a negative or disruptive force in the workplace, it can also have positive aspects. In this chapter, we will explore the positive aspects of conflict and how they can be harnessed to promote growth and innovation.
 

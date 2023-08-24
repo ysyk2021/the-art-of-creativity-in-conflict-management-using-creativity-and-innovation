@@ -1,5 +1,3 @@
-The Benefits of Creativity in Conflict Resolution
-===========================================================================================================
 
 In conflict management, creativity plays an essential role in the resolution of conflicts. In this chapter, we will explore the benefits of creativity in conflict resolution and how it can be used to manage workplace conflicts effectively.
 

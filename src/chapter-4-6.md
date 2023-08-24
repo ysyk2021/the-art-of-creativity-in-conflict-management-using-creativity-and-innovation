@@ -1,5 +1,3 @@
-Reverse Brainstorming
-==============================================================================
 
 Effective conflict management requires the ability to generate creative solutions that address underlying issues and concerns. While traditional brainstorming is a well-known technique for generating ideas, reverse brainstorming can be a powerful tool for promoting creativity in conflict resolution. In this chapter, we will explore reverse brainstorming and how it can be used to foster innovative solutions to workplace conflicts.
 

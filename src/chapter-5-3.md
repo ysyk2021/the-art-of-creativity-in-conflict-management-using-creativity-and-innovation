@@ -1,5 +1,3 @@
-Case Studies on the Use of Creativity in Conflict Management
-===================================================================================================================
 
 In this chapter, we will explore case studies that illustrate how creativity can be used to resolve conflicts in the workplace. These studies highlight the importance of creativity and innovation in conflict management.
 

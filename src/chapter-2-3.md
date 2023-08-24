@@ -1,5 +1,3 @@
-The Causes of Conflict
-=========================================================
 
 Conflict is a natural part of any workplace, but it can be managed and resolved more effectively by understanding its root causes. In this chapter, we will discuss the various causes of conflict.
 
