@@ -1,5 +1,4 @@
-Chapter: Steps to Apply Creativity in Conflict Management
-=========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Introduction
 ------------
